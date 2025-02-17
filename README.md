@@ -2,7 +2,7 @@
 
 **Download and Play Terabox Videos Directly**
 
-**Telegram :** [https://telegram.me/terabox_player_downloader](https://telegram.me/terabox_player_downloader)
+**Telegram :** [https://telegram.me/terabox_download_player_bot](https://telegram.me/terabox_download_player_bot)
 
 **Terabox Downloader Bot Added, go channel & join and use bot...**
 
@@ -19,7 +19,7 @@ Introducing the premier solution for playing and downloading Terabox videos onli
 
 ## How to Use
 
-- Use our Telegram Channel for direct downloads: [https://telegram.me/terabox_player_downloader](https://telegram.me/terabox_player_downloader).
+- Use our Telegram Channel for direct downloads: [https://telegram.me/terabox_download_player_bot](https://telegram.me/terabox_download_player_bot).
 
 
 ## Why Choose Us?
@@ -32,8 +32,8 @@ Introducing the premier solution for playing and downloading Terabox videos onli
 
 Join our expanding community of Terabox video enthusiasts. Utilize our platform today to effortlessly download and enjoy your favorite videos.
 
-**Website:** [https://telegram.me/terabox_player_downloader](https://telegram.me/terabox_player_downloader)  
-**Telegram Channel:** [https://telegram.me/terabox_player_downloader](https://telegram.me/terabox_player_downloader)
+**Website:** [https://telegram.me/terabox_download_player_bot](https://telegram.me/terabox_download_player_bot)  
+**Telegram Channel:** [https://telegram.me/terabox_download_player_bot](https://telegram.me/terabox_download_player_bot)
 
 ---
 
